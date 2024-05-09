@@ -153,7 +153,7 @@ If a club plays a match in a nation where the relevant sponsorship category is r
 The competition attracts an extensive television audience, not just in Europe, but throughout the world. The final of the tournament has been, in recent years, the most-watched annual sporting event in the world. The final of the 2012–13 tournament had the competition's highest TV ratings to date, drawing approximately 360 million television viewers.
 
 ## 2023-24 season
-### Finalists
-Borussia Dortmund reached the finals on 8th May 2024 after defeating PSG 2-0 over two legs with the winning goal scored by the German defender Mats Hummels. 
 
-In the other semifinal, the Los Blancos Real Madrid reached the finals on 9th May 2024 after snatching victory from the jaws of defeat, defeating Bayern Munich by 4-3 on aggregate. Joselu scored two crucial goals in the second leg to win it for Real Madrid who are chasing their record 15th Champions League title.
+### Finalists
+
+Real Madrid and Borussio Dortmund are the finalists of the ongoing 2023-24 season. Borussia Dortmund reached the finals on 8th May 2024 after defeating PSG 2-0 over two legs with the winning goal scored by the German defender Mats Hummels. In the other semifinal, the Los Blancos Real Madrid reached the finals on 9th May 2024 after snatching victory from the jaws of defeat, defeating Bayern Munich by 4-3 on aggregate. Joselu scored two crucial goals in the second leg to win it for Real Madrid who are chasing their record 15th Champions League title.
